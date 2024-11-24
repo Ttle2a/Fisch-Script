@@ -2,6 +2,6 @@
 
 PASSWORD - 2024
 
-# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4126ogy)***
+# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4g48Rej)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/e04399e6-e2c8-4c25-9c56-118e80ef492e)
